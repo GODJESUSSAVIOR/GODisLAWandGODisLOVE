@@ -1,1 +1,47 @@
 # GODisLAWandGODisLOVE
+
+✝️❤️🥰🙏👍
+
+GOD IS LAW AND GOD IS LOVE
+
+https://t.me/GODJESUSSAVIOR/63610
+
+1 . GOD IS LAW :
+GOD IS LAW VERY HARD HARD HARD
+GOD IS LAW VERY DICTATOR
+GOD IS LAW VERY NOT MERCY
+GOD IS LAW VERY NOT FORGIVE
+GOD IS LAW VERY ANGRY
+GOD IS LAW VERY JUSTICE
+GOD IS LAW VERY PUNISH
+GOD IS LAW VERY EVIL NOT GOOD
+... ETC ...
+
+GOD Teachs Humans via Bible Book Job :
+GOD tests " faith " of Job and  GOD punishs " sins " of Job ! Job deeds not " seen sins " but Job deeds " unseen sins " ! GOD LAW VERY HARD NOT MERCY JUSTICE PUNISH ( EVIL NOT GOOD LET SATANS DEEDS EVILS ) TOOK ALL CHILDRENS OF JOB AND TOOK ALL WEALTHS OF JOB AND GAVE DISEASES VERY PAINS VERY SUFFERINGS TO JOB !
+
+https://biblehub.com/job
+
+WHAT HAPPENED TO JOB BOOK BIBLE IS HAPPENS TO THE WORLD 7 YEARS TRIBULATIONS ( 2023 ~ 2029 ) !!! GOD LET SATANS DEEDS EVILS CAUSES DISASTERS DISEASES SUFFERINGS TO THE WORLD 7 YEARS TRIBULATIONS ( 2023 ~ 2029 ) SATANS RULE THE WORLD SINS PUNISHS BY GOD LAW VERY HARD 7 YEARS TRIBULATIONS ( 2023 ~ 2029 ) !!! AND THEN ON DECEMBER 2029 GOD COME PUNISH SATANS TO HELL AND GOD SAVE THE WORLD AND GOD RULE THE WORLD ( 2030 ~ 3030 )
+
+✝️❤️🥰🙏👍
+
+2 . GOD IS LOVE :
+GOD IS LOVE VERY SOFT SOFT SOFT
+GOD IS LOVE VERY NOT DICTATOR
+GOD IS LOVE VERY MERCY
+GOD IS LOVE VERY FORGIVE
+GOD IS LOVE VERY NOT ANGRY
+GOD IS LOVE VERY NOT JUSTICE
+GOD IS LOVE VERY NOT PUNISH
+GOD IS LOVE VERY GOOD NOT EVIL
+... ETC ...
+
+GOD Teachs Humans via Bible Book Job :
+GOD LOVE VERY SOFT MERCY FORGIVE NOT PUNISH ( GOOD NOT EVIL NOT LET SATANS DEEDS EVILS ) after Job repent said " i take back everything i said and i sit in dust and ashes to show my repentance ” and GOD LOVE BLESSED Job " in the second half of his life " even more than in the beginning for now GOD LOVE GAVE Job had 14000 sheep 6000 camels 1000 teams of oxen and 1000 female donkeys and GOD LOVE GAVE Job seven more sons and three more daughters etc GOD LOVE GAVE Job Life 280 years in world and GOD LOVE GAVE Job Life Eternal in Heaven Peace Joy Happy Forever
+
+https://bible.com/bible/116/job.42
+
+GOD LOVE GIVEN Christians Life Eternal in Heaven Peace Joy Happy Forever
+
+✝️❤️🥰🙏👍
